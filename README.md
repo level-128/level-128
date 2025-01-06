@@ -2,7 +2,8 @@
 Hi there :)
 
 Telegram: https://t.me/level_dash_128
-email: level-128@gmx.com  or  level-128@level-128.com
+Email: level-128@gmx.com  or  level-128@level-128.com
+Email (school): wyzern.wang@uconn.edu
 
 wanna chat with me? sure
 
